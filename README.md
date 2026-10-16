@@ -1,1 +1,1 @@
-# cafe-website
+# The Cozy Cup
